@@ -35,32 +35,40 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Greenes ghost haunting conie-catchers wherein is set downe, the arte of humouring. The arte of carry
+
+1. TO ALL GENTLEMEN, MERchants, Apprentises, Farmers, and plaine countrimen, health.
+
+1. To the Reader.
+
 #####Body#####
 
-1. How a Cheesemonger had his bag cut out of his Apo••• hanging before him.
+1. GREENES GHOST haunting Conicatchers.
 
-1. How a cosoning Life stole a cloake out of a Scriuenersshop.
+    _ How a Cheesemonger had his bag cut out of his Apo••• hanging before him.
 
-1. A slie tricke of Cosonage lately done in Cheapeside.
+    _ How a cosoning Life stole a cloake out of a Scriuenersshop.
 
-1. How a man was cosoned in the euening by buying a guilt spoone.
+    _ A slie tricke of Cosonage lately done in Cheapeside.
 
-1. The Arte of carying stones.
+    _ How a man was cosoned in the euening by buying a guilt spoone.
 
-1. How a Carier of Norwich was made to carie stones.
+    _ The Arte of carying stones.
 
-1. A Tale of a whore that crosbit a Gentleman of the Innesof Court.
+    _ How a Carier of Norwich was made to carie stones.
 
-1. How a Curbar was drest with an vnsauourie perfume, and how a notable whore was crosbitten in her owne practise.
+    _ A Tale of a whore that crosbit a Gentleman of the Innesof Court.
 
-1. A notable Scholerlike discourse vpon the nature of Dogges.
+    _ How a Curbar was drest with an vnsauourie perfume, and how a notable whore was crosbitten in her owne practise.
 
-1. How a Countrie Gentleman walking in Poules had his purse cut by a new kind of conueyance, and in the end by the like wilie beguily got it againe.
+    _ A notable Scholerlike discourse vpon the nature of Dogges.
 
-1. A notable exploit performed by a Lift.
+    _ How a Countrie Gentleman walking in Poules had his purse cut by a new kind of conueyance, and in the end by the like wilie beguily got it againe.
 
-1. How a Citizen was serued by a Curtizan.
+    _ A notable exploit performed by a Lift.
+
+    _ How a Citizen was serued by a Curtizan.
+
+1. THE NOTABLE, SLIE, and deceitfull pranks of Doctor Pinchbacke.
 
 **Types of content**
 
